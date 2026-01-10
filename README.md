@@ -1,4 +1,4 @@
-ㅤ  　  　  　  　![Untitled617_20260110132105](https://github.com/user-attachments/assets/964db002-6ef6-4941-a6ec-74b49baace0b)
+ㅤ  　  　  　   　　  　　![Untitled617_20260110132105](https://github.com/user-attachments/assets/964db002-6ef6-4941-a6ec-74b49baace0b)
 
  　　  　　 　　  　　  　　 　  follow my [main](https://github.com/riddledbatz)  　  　　 　『 ![493106585-00b27524-0dca-48ff-8dca-0c6cf0d0e1d2](https://github.com/user-attachments/assets/a6fbb12d-8729-4ce5-b74e-6ce23e427237)
  』 　　  　　　  [atabook](https://riddledbatz.atabook.org/)
