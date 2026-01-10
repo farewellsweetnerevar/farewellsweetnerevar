@@ -1,4 +1,4 @@
-ㅤ  　  　  　 ![Untitled558_20260110132805](https://github.com/user-attachments/assets/fcf485eb-f51a-4f7a-adf6-3d711a26f393)
+ㅤ  　  　  　  　 ![Untitled558_20260110132805](https://github.com/user-attachments/assets/fcf485eb-f51a-4f7a-adf6-3d711a26f393)
 
 
  　　  　　 　　  　　   　  𝒻𝑜𝓁𝓁𝑜𝓌 𝓂𝓎 [𝓂𝒶𝒾𝓃](https://github.com/riddledbatz)  　  　　 　『 ![493106585-00b27524-0dca-48ff-8dca-0c6cf0d0e1d2](https://github.com/user-attachments/assets/a6fbb12d-8729-4ce5-b74e-6ce23e427237)
